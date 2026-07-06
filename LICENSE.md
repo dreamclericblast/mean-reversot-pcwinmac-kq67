@@ -1,4 +1,4 @@
-# 
+# Ultimate mean reversion trading bot presets for Mac OS | VIP mean reversion trading bot presets for PC Windows. Featuring mean reversion strategy and momentum analysis — optimized for maximum performance.
 
 
 
